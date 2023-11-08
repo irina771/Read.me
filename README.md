@@ -11,6 +11,6 @@ SOFT SKILLS:
 Durante el bootcamp, aprendí y fortalecí mis habilidades blandas. Soy una persona comunicativa, lo que me permite escuchar y transmitir información efectivamente para alcanzar los objetivos deseados. También, soy colaborativa en el trabajo en equipo y en la realización de tareas. Poseo una buena gestión del tiempo para organizar las tareas en un plazo determinado. Además, me considero una persona abierta a los cambios y perspectivas diferentes para crear nuevas ideas.
 
 # Contáctame 🫶🏻
-Gmail: irinairinadomignuez@gmail.com
+Gmail: irinairinadominguez@gmail.com
 Linkedin: https://www.linkedin.com/in/irina-dominguez-5b63a5250/
 Cel: +54 9 2342 482716
